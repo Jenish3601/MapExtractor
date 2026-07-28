@@ -1,4 +1,2 @@
-PIB5-ASFG-GJSP-XHT2
-U6WQ-T3SZ-HOZE-89OM
-TOWA-4EVI-XG5L-E66M
 pateljenish3101@gmail.com
+nishthaalagiya@gmail.com
